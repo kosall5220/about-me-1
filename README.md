@@ -24,7 +24,7 @@ My name is Keith Hau and I love to play video games like fps games and rpg games
 * Chicken
 * Pizza
 * Ice Cream
-* Cheeze
+* Cheese
 
 
 
